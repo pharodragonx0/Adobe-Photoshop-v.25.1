@@ -1,0 +1,1 @@
+# Adobe-Photoshop-v.25.1
